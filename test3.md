@@ -1,1 +1,1 @@
-My favourite color is red
+My favourite colors are red and green
